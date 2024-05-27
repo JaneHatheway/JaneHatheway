@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I am a fiction writer
 
 <!---
 JaneHatheway/JaneHatheway is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
